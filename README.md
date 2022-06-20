@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Dakender
 - 👀 I’m interested in ... Crypto, Guns, Vape, Ham Radio
 - 🌱 I’m currently learning ... How to combine sketches
-- 💞️ I’m looking to collaborate on ... nothing
+- 💞️ I’m looking to collaborate on ... nothing at the moment.
 - 📫 How to reach me ... dakender@gmail.com
 
 <!---
